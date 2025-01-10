@@ -1,1 +1,1 @@
-# bot-teneo
+Hi, i use the Teneo Community Node and earn rewards by contributing to a decentralized data network. Use my Referral Code: BdKPZ to get 1,000 Extra Teneo Points, when signing up. Join now and earn your share! bit.ly/teneo-community-node
